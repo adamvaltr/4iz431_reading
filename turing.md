@@ -1,0 +1,1 @@
+Adam Valtr; [vala18@vse.cz](mailto:vala18@vse.cz); 14. 05. 2023; 41Z431 Umělá inteligence 1
